@@ -1,5 +1,5 @@
 # Download Tachiyomi APK - Your Ultimate Manga Reader  
-**Download:** [Tachiyomi APK Download](https://tachiyomiapk.net/) 👈🏻
+**Download:** [Tachiyomi APK Download](https://tachiyomi.xyz/) 👈🏻
 
 ## About Tachiyomi APK  
 Tachiyomi APK is a free, open-source manga reader app for Android that puts thousands of manga titles at your fingertips. With its customizable features and powerful library of Tachiyomi extensions, this app makes reading manga more accessible and enjoyable than ever.
